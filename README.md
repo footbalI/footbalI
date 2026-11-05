@@ -1,19 +1,5 @@
-<p align="center"> ARS VS BHA NEVER HAPPENED, ATM VS RMA NEVER HAPPENED. </p>
 <div align="center">
-  <img src="https://i.pinimg.com/736x/9b/58/c0/9b58c0e6a63011eaf8b52db9398033cf.jpg" width="450">
+    <img src="https://file.garden/amCuDGcSQR36Di_1/cute%20madrid"width="490"/>
 </div>
-
+<p align="center"> </p>
 <p align="center"><a href= "https://lluc.atabook.org">atabook</a>    <a href= "https://rentry.co/arsenaI">rentry</a>      <a href= "https://www.bookdfootball.com/profile/sukuna">bookd</a>    <a href= "https://guns.lol/birdofprey">guns.lol</a>   (˶˃ ᵕ ˂˶)</p>
-<p align="center"> </p>
-<p align="center"> </p>
-
-<div align="center">
-  <img src="https://file.garden/amCuDGcSQR36Di_1/lebron%20daddy%20james" width="400">
-</div>
-
-<p align="center"> </p>
-<p align="center"> </p>
-
-<div align="center">
-  <img src="https://file.garden/amCuDGcSQR36Di_1/lebron%20daddy%20james%202" width="400">
-</div>
